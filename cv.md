@@ -1,4 +1,5 @@
 # *Evgeniy Rossiyskiy*
+<img src="https://hhcdn.ru/photo/626351952.jpeg?t=1640689832&h=mkgpu9PU88cRyd0FCflOAQ" alt="drawing" width="200"/>
 
 ## Chief Specialist of the Information Technology Department
 
